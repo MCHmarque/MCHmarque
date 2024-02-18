@@ -26,31 +26,3 @@ Canales de Puerto Rico	https://bit.ly/3519u77
 Canales de España	https://bit.ly/32tSaGb
 Canales de Venezuela	https://bit.ly/3jYuUpBhttps://bit.ly/38cDDCq
 https://bit.ly/2TUsUE0
-https://bit.ly/30RbTxc
-http://bit.ly/2Eurb0q
-https://bit.ly/38f1rFx
-https://bit.ly/360viis
-https://bit.ly/3eoocI4
-https://bit.ly/3etM1yu
-https://bit.ly/3p6M6Ns
-http://bit.ly/Est4ble
-http://bit.ly/SpainIPTV2
-http://bit.ly/ListSpain
-https://bit.ly/2I7sW9j
-https://bit.ly/2TSqdTB
-
-Canales Internacionale
-https://bit.ly/38cDDCq
-https://bit.ly/2TUsUE0
-https://bit.ly/30RbTxc
-http://bit.ly/2Eurb0q
-https://bit.ly/38f1rFx
-https://bit.ly/360viis
-https://bit.ly/3eoocI4
-https://bit.ly/3etM1yu
-https://bit.ly/3p6M6Ns
-http://bit.ly/Est4ble
-http://bit.ly/SpainIPTV2
-http://bit.ly/ListSpain
-https://bit.ly/2I7sW9j
-https://bit.ly/2TSqdTB
